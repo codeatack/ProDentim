@@ -19,7 +19,7 @@ ProDentim is an oral health supplement that combines probiotics and natural ingr
 
 ✅ Pros
 
-    Natural Ingredients: Combines probiotics and herbal extracts without harmful additives.(Reddit)
+    Natural Ingredients: Combines probiotics and herbal extracts without harmful additives.
 
     Improved Gum Health: Users have reported reduced bleeding and inflammation.
 
@@ -33,7 +33,7 @@ ProDentim is an oral health supplement that combines probiotics and natural ingr
 
     Availability: Only available through the official website.
 
-    Price Point: May be considered expensive compared to traditional oral care products. (Reddit)
+    Price Point: May be considered expensive compared to traditional oral care products.
 
 🛒 Availability
 
