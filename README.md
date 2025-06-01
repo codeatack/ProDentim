@@ -42,4 +42,4 @@ ProDentim is available for purchase through its official website. The product co
 
 ProDentim offers a blend of probiotics and natural ingredients aimed at supporting oral health. While some users have reported positive outcomes, individual results may vary. It's advisable to consult with a healthcare professional before starting any new supplement regimen.
 
-🛒 AVAILABLE AT tinyurl.com/prodentimrev
+🛒 AVAILABLE AT -> tinyurl.com/prodentimrev
